@@ -1,4 +1,4 @@
-# 💫 Hello I'm Lauren Arica 👋
+# 💫 Hello I'm Lauren Arica G 👋
 I am currently in the tenth cycle of the systems engineering degree 💻 and I like to learn new technologies.
 <br>
 <br>
